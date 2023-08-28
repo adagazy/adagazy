@@ -1,4 +1,4 @@
-### Hi there 👋
+### Can I get A hoohh yeah 👋
 
 <!--
 **adagazy/adagazy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
